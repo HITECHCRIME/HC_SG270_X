@@ -23,12 +23,16 @@ Description.
 
 ```
 she a bad rep forlorn connection
-make it stop feeling live in disection
+make it stop feeling live in dissection
 paying off from the rise of the nation
 was a good trap, flagged for stagnation
 
 direction of your thoughts false in a way that's not 
 the only mark of suffering
+
+mark of suffering
+mark of suffering
+mark of suffering
 
 ```
 
